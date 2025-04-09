@@ -11,7 +11,7 @@
   > 칭찬과 사과에 인색 X  
 
 ## Team Identity 
-**Quick. Quirky. Quality 빠르게. 색다르게. 제대로!**  
+*"Quick. Quirky. Quality 빠르게. 색다르게. 제대로!"*  
 
 <br/>
 <div align="center">
